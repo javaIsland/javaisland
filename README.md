@@ -5,6 +5,6 @@
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
 - 🥅 2020 Goals:to be all rounded programmer!
-- ⚡ Fun fact: I kayaking and archery.
+- ⚡ Fun fact: I enjoy kayaking and archery.
 
 
